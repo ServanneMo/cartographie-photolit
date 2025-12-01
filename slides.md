@@ -1,8 +1,16 @@
 
 
-## Le mauvais sens de la carte
+## Dans le mauvais sens 
+
+#### Lectures & interprétations tactiques de la carte numérique
 
 ![](img/postcardsvalla-35d9b.jpg)<!-- .element: style="width:600px" -->
+
+
+
+===
+
+§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§
 
 
 
